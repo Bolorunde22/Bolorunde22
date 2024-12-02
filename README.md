@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Bolorunde22
+- 👀 I’m interested in Programming.
+- 🌱 I’m currently pursuing a degree in Computer science. 
+- 💞️ I’m looking to collaborate on projects and learn from others.
+- 📫 How to reach me: Email: bolorunde53@gmail.com
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I enjoy playing video games in my free time
